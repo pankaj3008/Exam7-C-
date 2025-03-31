@@ -1,1 +1,6 @@
-# Exam7-C-
+# Exam7-C-![6](https://github.com/user-attachments/assets/92376357-99a0-4801-805e-8ab85608b40b)
+![5](https://github.com/user-attachments/assets/c8794dfa-eb1a-41d8-bcaf-fd93c8c1aa24)
+![4](https://github.com/user-attachments/assets/311643e4-1e3d-4473-a429-db25107c1b28)
+![3](https://github.com/user-attachments/assets/4845019d-f206-4d54-bc89-bcb9741ff302)
+![2](https://github.com/user-attachments/assets/6a3c70b9-ff71-42f7-8ed3-1c5c916b126e)
+![1](https://github.com/user-attachments/assets/839a6a04-56b1-425f-b56d-e5c7076f7995)
